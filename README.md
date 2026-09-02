@@ -1,10 +1,10 @@
 ## 你好，Hi there！
 
 你好，我是银橘。
-目前就读于Tunku Abdul Rahman University of Management and Technology。
+目前就读于TAR UMT。
 
 Hi, I'm SilverJu.
-Currently studying at Tunku Abdul Rahman University of Management and Technology.
+Currently studying at TAR UMT.
 
 
 

@@ -8,6 +8,6 @@ Currently studying at TAR UMT.
 
 
 
-📫Contact me: [github@silveryj-atzj.me](mailto:github@silveryj-atzj.me)
+📫Contact me: [adriantzj07@gmail.com](mailto:adriantzj07@gmail.com)
 
 Personal site:[银橘の站](https://silveryj-atzj.me/)

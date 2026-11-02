@@ -3,7 +3,7 @@
 你好，我是银橘。目前就读于TAR UMT。
 
 - 联络: [adriantzj07@gmail.com](mailto:adriantzj07@gmail.com)
-- 个人网站:[银橘の站](https://silveryj-atzj.me/)
+- 个人网站: [silveryj-atzj.me](https://silveryj-atzj.me/)
 - 小站: [blog.silveryj-atzj.me](https://blog.silveryj-atzj.me/)
 
 ---

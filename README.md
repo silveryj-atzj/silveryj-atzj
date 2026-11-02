@@ -14,4 +14,4 @@ Hi, I'm SilverJu, currently studying at TAR UMT.
 
 - Contact: [adriantzj07@gmail.com](mailto:adriantzj07@gmail.com)
 - Personal site: [silveryj-atzj.me](https://silveryj-atzj.me/)
-- Technical blog: [https://blog.silveryj-atzj.me/](https://blog.silveryj-atzj.me/en/)
+- Technical blog: [blog.silveryj-atzj.me/](https://blog.silveryj-atzj.me/en/)
